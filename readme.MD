@@ -1,7 +1,5 @@
 # karthik reddy 
 
-## karthik reddy nandhyala.................@gmail.com
+hi hello i am karthik
 
-hi hello world this is roboshop
-
-hi hello countinents this is roboshop project
+this is from hyderabad 
